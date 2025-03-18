@@ -1,2 +1,2 @@
 # Mukesh-Gaire
-I want to be a coder one day ...?
+focusing on continuous learning, mastering problem-solving,<br> developing strong communication skills, and embracing challenges ...?
